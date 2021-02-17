@@ -1,1 +1,1 @@
-# rochelleclover.github.io
+# girlbossmindset.github.io
